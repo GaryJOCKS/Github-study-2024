@@ -7,6 +7,6 @@ Actuellement je suis en apprentissage.
 
 J'aimerais apprenndre avec ceux ont des connaissance dans le domaine.
 
-N'hésitez surtout pas à partager avec moi.
+N'hésitez surtout pas de partager avec moi vos idées et connaissances.
 
 Bien à vous.
