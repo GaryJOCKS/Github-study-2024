@@ -1,2 +1,2 @@
-# Github-studying-2024
+# Github-studies-2024
 Learn codes
